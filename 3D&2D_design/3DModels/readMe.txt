@@ -1,0 +1,1 @@
+to view the Project designs open the links provided in the above files which will direct you to my repository on fusion 360
